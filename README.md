@@ -1,1 +1,1 @@
-# rsschool-cv
+https://gleb-tregubov.github.io/rsschool-cv/cv
