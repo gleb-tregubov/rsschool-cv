@@ -6,3 +6,5 @@
 5. Last code expamples are exist on my github account
 6. I havnt real commerc expereince, but have been working on my side projects
 7. I am a 2nd year student of Saint Petersburg State University of Aerospace Instrumentation, from Russia,Computer Sience department
+8. My opinion what my English skills is not bad, i think what i can maintain a not hard conversation
+my email: <tregubovgleb@gmail.com>
